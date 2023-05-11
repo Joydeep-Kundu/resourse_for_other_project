@@ -1,0 +1,1 @@
+# resourse_for_other_project
